@@ -1,0 +1,5 @@
+mamlala
+ammxla
+mal
+al
+what is thoi
